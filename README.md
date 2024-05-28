@@ -1,1 +1,1 @@
-![CardProfile](https://github.com/Kyaa-A/CardProfile/assets/38740041/2dd35e75-521e-4444-875f-9ddb7f048c04)
+![CardProfile](https://github.com/Kyaa-A/CardProfile/assets/38740041/c9bd97c9-7ba2-4990-bb9e-1ce48a3ab588)
